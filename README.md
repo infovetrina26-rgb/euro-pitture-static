@@ -1,0 +1,1 @@
+# euro-pitture-static
